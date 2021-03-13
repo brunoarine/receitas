@@ -3,10 +3,10 @@
 ## Ingredientes
 
 - 700 g de couve-flor limpa separada em buquês (7 xícaras de chá)
-- 1/2 colher (sopa) de azeite
-- 1/2 colher (sopa) de alho picado
-- 1/2 xícara (chá) de cebola picada (80 g)
-- 3/4 xícara (chá) de água fervente
+- 1/2 colher sopa de azeite
+- 1/2 colher sopa de alho picado
+- 1/2 xícara chá de cebola picada (80 g)
+- 3/4 xícara chá de água fervente
 - sal a gosto
 
 ## Modo de Preparo

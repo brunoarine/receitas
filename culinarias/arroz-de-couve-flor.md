@@ -16,3 +16,7 @@
 - Acrescente a couve-flor processada, 3/4 de xícara (chá) de água fervente e sal a gosto.
 - Tampe a panela, abaixe o fogo e deixe cozinhar por 10 minutos ou até a água secar.
 - Sirva em seguida.
+
+## Observação
+
+Pode ser cozido e misturado durante o cozimento do arroz branco comum.
